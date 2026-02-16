@@ -1,4 +1,4 @@
-![](https://file.garden/aZKROjtM0CnyBnjG/Picsart_26-02-15_22-53-59-351.png)
+![](https://files.catbox.moe/fw90c9.png)
 ![](https://file.garden/aZKROjtM0CnyBnjG/Untitled3456_20260215230144.png)
 ![](https://files.catbox.moe/17pd6h.png)
 ‎ 
